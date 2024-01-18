@@ -113,3 +113,15 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Protien Shake
+
+Ingredients:
+1. 1 cup unsweetened vanilla soymilk
+2. ¾ cup sliced frozen banana
+3. ½ cup reduced-fat plain Greek yogurt
+4. 1 tablespoon cocoa powder
+5. 1 tablespoon natural peanut butter
+
+Instructions:
+1. Combine soymilk, banana, yogurt, cocoa powder and peanut butter in a blender; blend until smooth.
